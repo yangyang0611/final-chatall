@@ -1,3 +1,1 @@
 # final-chatall
-
-pratise purpose 
